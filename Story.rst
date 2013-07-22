@@ -18,3 +18,8 @@ Black hops forward a few steps, snatching it off the door, "Uhh.. Well, I just f
 
 "You and silly classic rock." Kikaku snorted. "If it doesn't have wubs, it no good."
 
+"I love classic. Baby make it hurt so good! Sometimes love don't feel like it should, so baby make it hurt so good." Black grins.
+
+Kikaku meanwhile just played Happy Violence (topnot remix) and a boombox he just pulled out of nowhere.
+
+"Come on! Make it hurt so good!" Black sings, changing the song to Some Nights.
