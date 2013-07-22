@@ -16,3 +16,5 @@ Black hops forward a few steps, snatching it off the door, "Uhh.. Well, I just f
 
 "Ohh well. Back in Black, I hate to say it!" he jumps off of the porch with a stomp, "I've got nine lives and ten size." he sings, stomping his feet on the ground, putting the volume on his ipod all the way up, "Back!" he stomps his feet on the ground as he dances to the music, completely immature as always when he listens to music. He does the air guitar for a few moments.
 
+"You and silly classic rock." Kikaku snorted. "If it doesn't have wubs, it no good."
+
